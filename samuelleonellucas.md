@@ -1,0 +1,1 @@
+Área de atuação: Gostaria de atuar como arquiteto de software e/ou Líder técnico. Tipo de empresa: Gostaria de atuar em uma empresa sem muita burocrácia, algo bem parecido com a Nubank, onde os funcionários possuem autonômia para criar novas soluções, realizar entregas sem receio algum.

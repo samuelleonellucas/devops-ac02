@@ -1,5 +1,5 @@
 # Melhores atletas 
 Lionel Messi
-Cristiano Ronaldo 
+Cristiano Ronaldo
+Diego Costa
 Neymar Junior
-
